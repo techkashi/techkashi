@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @techkashi
+- 👀 I’m interested in WebApps
+- 🌱 I’m currently learning Web development
+- 💞️ I’m looking to collaborate on "nothing"
+- 📫 How to reach me, just pm me on telegram. (@techkashi)
